@@ -1,3 +1,0 @@
-ayam
-masak
-merah
